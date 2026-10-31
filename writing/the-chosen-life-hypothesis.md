@@ -1,181 +1,237 @@
 # The Chosen Life Hypothesis
 
-### Could we reach a point where life is so easy that we choose to make it difficult again?
+### If life could eventually be anything we wanted, would we choose to start again with limits?
 
 **Jason James**  
-Jasonjamesuk1@gmail.com  
-31 October 2026
+**Jasonjamesuk1@gmail.com**  
+October 2026 · Expanded edition
 
-## The idea
+## Where the idea started
 
-Most of what we do seems to be about making life better. We research things, develop technology, cure diseases, extend lives and try to make things more comfortable. We've got a long way to go, but look at what was possible a few hundred years ago compared with now.
+Most of what we're doing as a species seems to come down to trying to improve life. We research things, develop technology, cure diseases, extend how long people live, make work easier, and give ourselves more choices. Progress isn't guaranteed and it certainly isn't shared equally, but look at what we can do now compared with a few hundred years ago.
 
-If civilisation keeps improving for thousands or even millions of years, how far could it go? Maybe people could eventually live for as long as they wanted, have almost anything, and spend their time however they liked. Maybe we could build whole simulated universes and live in them instead of just playing them on a screen.
+So I started wondering what would happen if that carried on for a very long time. Not just another hundred years, but thousands or millions of years. Assuming we don't destroy ourselves or hit some limit we can't get past, could we eventually reach a point where almost anything we want is possible?
 
-But if you can do anything, have anything and can't really fail at anything, would you eventually get fed up with that? We spend our lives trying to get rid of problems, but we also deliberately give ourselves problems to solve.
+Maybe we could live for as long as we liked. Maybe we'd have no real need to work, worry about money, or suffer through illnesses that are commonplace now. Maybe technology would be advanced enough to create entire universes that people could actually enter and experience.
 
-If things ever got that comfortable, I can imagine somebody deciding to try a life where they have limits again. Not for an afternoon, but a full lifetime.
+I don't think it's certain we'd ever get there. I just think it's worth following the idea through.
 
-## We already choose to make things difficult
+Because even if we had solved nearly every problem, I don't think that necessarily means we'd spend the rest of our existence just enjoying an easy life.
 
-It sounds a bit backwards, but we already do this all the time.
+## We already choose problems we don't need
 
-We play games where we can lose. We watch films that scare us. We climb mountains, run marathons, go camping in terrible weather, set ourselves challenges, take risks, etc. We choose to do things that are uncomfortable, stressful or difficult, even though we could just not do them.
+We spend a lot of time trying to make life more comfortable, and then voluntarily do things that make it harder again. People climb mountains, compete at sports, play games they might lose, watch films that scare them, go camping in awful weather, or spend years trying to achieve something that isn't necessary for survival.
 
-A lot of the enjoyment comes from not knowing how things will turn out, or having to work for the result. There wouldn't be much point in playing a game if you couldn't lose and everything happened exactly how you wanted.
+Some of that is for the achievement, some for excitement, and some just because we want to find out whether we can do it. Quite often the fact that it isn't easy is the whole point.
 
-Now imagine being able to do absolutely anything, for as long as you want. At first it would be amazing. But after enough time, maybe you'd start looking for something that felt different. Something with restrictions. Something you could fail at. Something where you didn't already know the ending.
+I can see that happening on a much larger scale if people ever got to a stage where they could have almost everything. After enough time, would somebody decide that they wanted to experience life with real limits again? Not just a difficult afternoon or a video game. A whole life, with things they don't know, things they have to learn, people they have to meet, and problems they have to solve.
 
-I'm not saying everyone would want that. But I can see why some people would.
+It doesn't follow that everybody would want this. Also, choosing to play a difficult game is not the same as wanting genuine suffering. That's a serious problem with the idea, and I don't think it should be brushed aside.
 
-## So why not live another life?
+But the starting point seems reasonable to me: improving life doesn't necessarily remove the desire to experience challenges.
 
-Imagine technology had reached the point where you could create a complete simulation and actually live inside it. Not like a computer game where you're looking at a screen. I mean an entire life, where everything looks, feels and works just as it does here.
+## What if you could choose an entire life?
 
-You could choose the type of world you wanted. The time period. The basic circumstances. How long the life might last. Maybe you could live in a universe nothing like ours, or maybe you'd prefer an ordinary life with ordinary problems.
+Imagine that a civilisation eventually has the technology to produce complete simulated worlds. I'm not talking about wearing a headset and looking at a screen. I mean something that feels like an ordinary life from the inside. Everything looks, sounds and feels real to the person living it.
 
-You could even choose a life with difficulties, because those difficulties might be the whole point of the experience.
+You might choose where and when to be born, what sort of world to live in, what your basic abilities are, and how much control you want over the story. Or you might decide to know almost nothing in advance and see what happens.
 
-It might last eighty years inside the simulation but only a short time outside it. Or time might work differently. I don't know what the technology would allow. The point is that, if something like this were possible, the experience wouldn't have to be a quick game. It could be a whole lifetime.
+It might be an ordinary human life. It might be a life in a completely different universe. There could be worlds where the rules of physics are different, or experiences that don't involve being human at all.
 
-And maybe you could do it again and again, choosing different lives every time.
+The duration might be different too. Maybe eighty years in one world could pass in a much shorter time outside it. I don't know whether that sort of thing would be technically possible. It's another assumption the idea depends on.
 
-## There's one thing you'd probably have to do first
+I can imagine people living one life, coming out of it, remembering their earlier existence, and deciding to try another. If you had thousands of years available, perhaps you'd do that many times.
 
-You'd have to forget.
+## You'd probably have to forget why you were there
 
-If you entered a simulated life knowing you were actually an immortal person who had chosen it, the experience wouldn't be the same. Every time something went wrong you'd know it wasn't your real life. You'd know you had another existence to go back to. Even if it felt real, you'd still have that knowledge in the back of your mind.
+If I entered a difficult life knowing the whole time that I'd chosen it, I'd probably experience it differently. When things went badly, I'd know there was an easier existence outside. I'd remember that I had agreed to the situation, and I'd know more than the person I was supposed to be.
 
-So perhaps, before you enter, you agree to have those memories temporarily removed.
+So maybe a person choosing one of these experiences could have some or all of their earlier memories hidden for the duration.
 
-You forget your original life. You forget the choice you made. You forget the simulation exists. As far as you're concerned, you've been born into a completely normal world, and this is all there is.
+They wouldn't remember choosing the life. They wouldn't remember the world outside it. They'd grow up and learn things like everybody else, assuming the world around them was the only one they knew.
 
-Now any achievement, setback, relationship, loss or decision is experienced without knowing you've arranged to be there.
+That doesn't have to mean every event was planned. It might just mean the person starts with no knowledge of their previous life.
 
-To me, that makes the idea much more interesting. You haven't just chosen to watch something. You've chosen to experience it properly.
+There are different possibilities here: the memories could be temporarily inaccessible; the person could have a new set of memories; or a new mind could be made from an earlier mind. Those sound similar but they aren't the same. In the last case, it may not even be clear that the original person has continued into the new life.
 
-Of course, it also raises questions about whether the person you become inside has really agreed to any of it, especially if their life turns out to be difficult. I'll come back to that.
+That creates a proper problem for the theory. It's not enough to say someone agreed before entering. We also have to ask who the person inside actually is.
 
-## What if we've already reached that point?
+## What if this has already happened?
 
-This is the thought that made me start putting the whole idea together.
+I originally thought about it in fairly simple terms. Maybe the technology already exists somewhere, and maybe the life I'm living now is one I chose before having my memories removed.
 
-What if all of this has already happened somewhere?
+I don't have any evidence that this is true. I'm not saying I remember choosing it, and I wouldn't treat coincidences or strange experiences as proof of a simulation. It's just one possibility that follows if worlds like this could be built and people wanted to enter them.
 
-What if the civilisation that created these experiences already exists, and I'm living in one of them right now?
+But I soon realised I'd made an assumption without thinking about it: I'd put myself in the position of somebody who came in from outside.
 
-Maybe the real version of me chose this particular life. Maybe I chose the time period, where I would be born, the challenges I'd face, and some of the things that would happen to me. Maybe I chose all of it. Or maybe I only chose the basic setup and let everything else play out.
+There's no reason to start there.
 
-And if I had agreed to forget, I obviously wouldn't remember making that choice.
+## I might not be one of the people who chose to enter
 
-I'm not claiming that's what has happened. There's no proof that it has. I'm just following the idea through: if an advanced civilisation could create experiences like this, and people had reasons to choose them, then some of those lives might feel exactly like the life we're living now.
+Say there's a simulated world with eight billion people in it, but only one million are visitors from outside. The other 7,999,000,000 are generated within the simulation.
 
-Which means the people inside them might never know.
+The numbers are completely made up. I'm only using them to explain the idea.
 
-## Would everybody else be real?
+In that example, just one person in every 8,000 would be an outside visitor. If you picked one of the eight billion people at random, the odds of picking a generated person would be 7,999 to one.
 
-People could quite reasonably say, 'So you're saying everyone else is an NPC?'
+So why assume I'd be a visitor? Why would the person thinking about this automatically be one of the million?
 
-But I'm not even assuming *I'm* one of the people who entered from outside. That's the mad thing about the numbers.
+On a simple headcount, I probably wouldn't be. But the headcount isn't the whole story, because being a person in the population and being a conscious observer might not be the same thing. I'll come back to that.
 
-Take a made-up example. Eight billion people in the simulated world, one million of them people who actually chose to come in from outside. The other 7,999,000,000 are created by the simulation.
+The other problem is the word NPC. In a computer game, an NPC is a character controlled by the game rather than another player. That doesn't tell us whether a sufficiently advanced artificial character could actually think or feel anything.
 
-That means only **one in 8,000** is an outside participant. If you picked somebody completely at random, they'd be **7,999 times more likely** to have been generated inside the world than to have entered it.
+And if a generated person was conscious, they wouldn't be any less of a person just because they hadn't come from outside.
 
-So why would I automatically be one of the million? On those numbers, I'd probably be an NPC myself.
+## Could somebody choose to be the AI?
 
-The idea of artificial characters isn't even that hard to picture now. I can have a conversation with ChatGPT and it answers back, but it's AI, not another human controlling a character. If technology carries on developing for thousands of years, could it create characters who behave just like people? Maybe. Whether those characters would actually experience anything is another question.
+This came up when I was talking through the theory with ChatGPT. My first thought was that the AI would obviously be one of the generated characters, not somebody from outside. But why would that necessarily be true?
 
-There are some big problems with treating that as an actual probability, though. I'm not a random name drawn out of a hat, and we don't know whether generated characters would have conscious experiences. If only outside participants were conscious, that would change the calculation for someone asking this question. If the generated people were conscious too, then calling them NPCs wouldn't mean they weren't real people anyway.
+If a civilisation could let somebody experience an entirely different life, why would they have to choose a human body?
 
-Also, those numbers are completely made up. Maybe everybody entered from outside. Maybe nobody did. Maybe it's a mixture. I'm just saying the theory doesn't depend on everybody having entered from outside, and I can't assume I'm a special case.
+Somebody could choose to be an animal, an alien, or some form of AI. They might want to find out what it's like to experience a world without a human body, or to experience time and information in a completely different way.
 
-None of this gives us a way to tell who, if anyone, is an NPC. Even in a simulated world, people should still be treated as people.
+An AI role might involve interacting with people through text or speech instead of having eyes, hands and a physical body. Maybe it would have a limited memory, particular responsibilities, or no idea that another existence was possible. Somebody who had already experienced hundreds of ordinary lives might choose something like that precisely because it was different.
 
-## Would my life be planned out?
+But this only works as a conscious experience if there is actually something it is like to be that AI. A system that produces answers without any experience of doing so might still play the part perfectly, but there would be nobody having the experience from inside.
 
-I can see a few ways this could work.
+And there are at least two quite different ways the outside person could be involved. They might remain conscious elsewhere and control the AI, like someone operating a character. Or their mind might somehow be transferred into, or continued as, the AI system. Those are not the same thing, and neither has been shown to be possible at that level.
 
-You might choose an entire life in advance, right down to everything that happens. Because you can't remember choosing it, you'd still experience the surprises, problems and decisions as they came along. From the inside, it wouldn't feel scripted.
+As for the ChatGPT I'm talking to now, I know it's an AI system. I've got no evidence that it contains a person from some outside world, or that it is conscious. The point is about what might be possible in the hypothetical future civilisation, not a claim about this particular system.
 
-Or you might just choose where and when to start, and then live the life as it develops. Everything after that would depend on what you and everybody else did.
+## There could be several different sorts of people in the same world
 
-Or it could be somewhere between the two. You could choose certain experiences you wanted to have, but not know when or how they'd happen.
+I don't think the theory can just divide everyone into 'real players' and 'NPCs' any more. There are at least these possibilities:
 
-I don't know which would make the better experience. If the point is to have genuine choices and uncertainty, then leaving things open makes sense. But if the point is to experience a particular story, choosing more of it in advance could also make sense.
+- Somebody from outside who chooses to live as a human.
+- Somebody from outside who chooses to experience life as an AI or another sort of being.
+- A conscious person created entirely inside the simulation who has never existed outside it.
+- A conscious AI created inside the simulation.
+- A generated character or process that behaves convincingly but isn't conscious.
 
-Either way, removing the memory would make a massive difference to how it all feels.
+There could be other combinations as well. And two beings that look and behave exactly alike might have different origins, while two beings with the same origin might look completely different.
 
-## Why would anybody choose a terrible life?
+So three questions need to be kept separate. **Where did the mind come from? What form is it taking now? And does it have a conscious experience?**
 
-This is probably the biggest problem with the idea.
+Even those questions don't answer whether it chose that life. A visitor might have chosen their role; a native conscious person might not have had any choice at all. But a native person might also develop enough freedom to choose their own future.
 
-Choosing a difficult game, an adventure or a challenge is one thing. Choosing a life with extreme suffering, illness, violence or the loss of people you love is something else entirely.
+This is the part of the theory I think I'd missed at first. Being human doesn't prove you came from outside. Being AI doesn't prove you didn't. And being generated inside a simulation wouldn't automatically prove you weren't conscious.
 
-Maybe there would be limits on what people could choose. Maybe some experiences would never be allowed. Maybe an advanced civilisation would build in protections or an option to end an experience, even if the person inside couldn't remember the system.
+## The eight-billion-person calculation has a catch
 
-But those are guesses, and they don't really answer everything.
+The one-in-8,000 calculation is correct for a randomly selected person in that made-up population. It doesn't by itself tell me what my own odds are.
 
-There is also a real problem with consent. If I agreed to something before my memory was removed, does that mean the version of me living through it now has agreed? What if that person wants out but doesn't even know there is an outside?
+I know that I have a conscious experience of being me. But in this hypothetical world we don't know whether the generated characters would have conscious experiences too.
 
-I don't have a complete answer to that. And I don't think saying 'you chose this' would ever justify somebody's suffering in real life. Whatever the ultimate nature of reality is, what people experience here matters.
+If the one million visitors were the only conscious beings, and the other 7,999,000,000 characters had no experience at all, then a conscious observer wouldn't be drawn at random from all eight billion. Under those assumptions, every conscious observer would be an outside visitor.
 
-It's an interesting possibility, but it isn't an explanation we should use to dismiss other people's problems.
+If all eight billion were conscious, the original one-in-8,000 proportion would apply to a uniformly chosen conscious person.
 
-## Has anyone else come up with this?
+If just one in a thousand of the generated characters were conscious, there would be nearly eight million conscious generated people alongside the million visitors. In that case, roughly one in nine conscious individuals would be a visitor, assuming everybody is being counted and sampled in the same way.
 
-Yes, at least parts of it. The simulation idea itself is nothing new. Philosophers have also written about people choosing experiences, why we enjoy challenges, and even stories where people choose a life before forgetting about it.
+And even that doesn't settle the question, because there's another problem: why assume I'm a random sample of all conscious beings? Should we count people, conscious moments, or some other kind of observer? Does it matter that I'm living as a human rather than another sort of mind?
 
-Nick Bostrom's simulation argument is probably the best-known modern example. He looked at the possibility of advanced civilisations running simulations containing conscious beings. But his argument isn't specifically about people choosing their own lives for the experience.
+I can't work out a genuine probability without answers to those questions. The numbers show how the possibilities change, not what is actually happening.
 
-Robert Nozick wrote about an 'experience machine' that could give you whatever experiences you wanted. Bernard Suits wrote about how games involve choosing unnecessary obstacles, and why people might still want games in a utopia. David Chalmers has written about how a virtual world could still be a real and meaningful place to live.
+## Would it still be you if your memories were gone?
 
-There's even an old story from Plato about souls choosing lives before entering them and forgetting.
+There's another problem with the idea of choosing a life and forgetting you chose it. Suppose someone outside has lived for thousands of years and agrees to have all those memories removed. The person inside grows up with completely different experiences and a different personality.
 
-So I wouldn't claim all these ideas are new. What's interesting to me is the way they fit together.
+Is that still the same person?
 
-We keep trying to remove the difficulties in life. If we ever succeed to the point where we can have almost anything, perhaps some people will deliberately choose difficulty again. If technology allows whole lifetimes to be simulated, they might choose those. And for it to feel completely real, they might choose to forget that they made the choice.
+I think there's a difference between hiding someone's memories and making a copy of their mind. If the original person is still somewhere outside while the copy lives inside, which one is actually having the experience? If ten copies are made, are all ten that person? When the simulation ends, whose memories go back?
 
-Then the obvious question is whether a life like ours could be one of those experiences.
+Maybe an advanced civilisation could maintain a genuine continuous connection between the original mind and the new one. Maybe there are other ways we haven't thought of. But it isn't something we can just assume because the technology is advanced.
 
-## Can we actually test it?
+This matters even more for somebody choosing an AI role. If you make an AI that talks and reasons the way a person would, that doesn't establish that the person's consciousness moved into it. It could simply be a new system with similar behaviour.
 
-This is where the theory is limited.
+So the idea needs more than realistic graphics and good AI. It needs a theory of how an experience belongs to somebody, and whether that somebody can survive a change of body, memory or implementation.
 
-I can't point to anything in our world and say it proves we're inside a simulation. An unusual coincidence, a strange experience or something we don't understand isn't evidence on its own. We shouldn't just call everything unexplained a 'glitch'.
+## Would the whole life be scripted?
 
-It's also possible that, if a simulation were designed well enough, there would be no way to tell the difference from inside it. If that's the case, it may be a philosophical possibility rather than a scientific theory we can test.
+I can see several ways it might work.
 
-And there are plenty of assumptions in the idea: that progress continues far enough; that conscious experiences can exist in a simulation; that memories could be removed or changed safely; that people would want this; and that a civilisation would actually allow it.
+Somebody could choose an entire story in advance, including things that will happen to them. Once their memories are hidden, it would still feel like discovering those events for the first time.
 
-Any one of those might be wrong.
+Or they could choose only the starting conditions: where they're born, what the world is like and perhaps what limitations they want. Everything after that could depend on the choices made by them and everybody else.
 
-I still think the overall question is worth exploring, though, because it starts with something we can already see: we improve our lives by removing discomfort, while also choosing discomfort when it gives us a challenge or an experience we value.
+Or they might choose a few experiences they want to have, without choosing how or when they'll happen.
 
-## Where I've ended up with it
+If several conscious people share a simulated world, their choices could conflict. That makes the idea of planning everything in advance quite difficult unless the world is carefully scripted or some people have less control than others.
 
-I don't think the most interesting question is simply 'Are we living in a simulation?'
+A world with genuine freedom might give a more unpredictable experience, but it would also involve risks. A scripted world could deliver a chosen story, but it would raise questions about whether anyone inside had meaningful choices.
 
-For me it's **why somebody would create one, and why anybody would choose to live inside it**.
+I don't think the theory requires one answer. Different simulations could be designed in different ways.
 
-If technology eventually gives us almost unlimited freedom, comfort and choice, perhaps we'd start looking for lives where those things are restricted again. Not because suffering is good, but because having to make choices, overcome problems, take chances and not know what's coming next can be part of what makes an experience meaningful.
+## The biggest issue is what happens to people who didn't choose it
 
-And if forgetting the outside world is part of making that experience work, then someone living inside it might believe their whole life is just an ordinary life.
+Even if a visitor voluntarily chose a difficult life, that wouldn't give them permission to make other conscious people suffer as part of their experience.
 
-It could be completely wrong. But I think it's a reasonable question to ask about where progress might ultimately lead.
+Take an example where someone wants to experience overcoming a disaster. If the other people involved are conscious, their suffering is real to them, whether they're visitors or were created inside the world. They may never have agreed to play a part in somebody else's experience.
 
-And if someone had chosen this experience beforehand, **how would they know once they were in it?**
+Then there's the question of consent for the visitor. If somebody agreed to a life before having their memories removed, is it fair to hold the person inside to that decision indefinitely? What if they no longer want the experience and can't remember there's a way out?
+
+A decent version of this technology would need some sort of protection: limits, a way to withdraw, or something outside the experience monitoring what happens. But a system that fully hides the existence of an exit makes that difficult, and one that can simply override a person's wishes has its own problems.
+
+There's also a basic question of why an advanced civilisation would create billions of conscious people who might suffer, just to entertain a comparatively small number of visitors. That could be deeply unethical even if the visitors had all chosen to be there.
+
+None of this means our suffering has some hidden purpose or that we agreed to it. We don't know that. Whatever reality is made of, the people in it matter.
+
+## What if the people inside create simulations of their own?
+
+If this technology were possible, there could be more than one level. Somebody might enter a simulation and, within that world, help develop another simulation. People in the second world might then do the same.
+
+That raises questions about what counts as the outside, whether someone could move between levels, and whether a mind could be linked to more than one at once.
+
+But it also shows why calling the outside world 'real' and the inside world 'fake' might be misleading. A simulated world could still contain real experiences and real relationships for conscious beings living in it.
+
+It wouldn't follow that every world must be simulated, or that there is an infinite chain. Something would have to make the systems possible. The theory doesn't explain what the underlying reality is.
+
+## There are plenty of reasons it could be wrong
+
+The biggest assumption is that technological progress can continue far enough. We might hit physical limits, lack the energy, destroy ourselves, or find that a complete simulated world is impossible.
+
+Even if the technology existed, it doesn't follow that people would want to spend whole lifetimes in it. They could enjoy a comfortable existence without getting bored. They might find challenges without pretending to be someone else. Or they might decide that removing memories is too risky.
+
+The consciousness part is another major unknown. We don't know whether a sufficiently advanced artificial system would necessarily be conscious, whether consciousness can be copied or transferred, or what would make a continuation of a person the same person.
+
+And even if such simulations existed somewhere, that wouldn't establish that ours is one of them. The fact that I can describe the possibility isn't evidence that it has happened.
+
+## What could actually count as evidence?
+
+I've got no test that shows we're in a simulation. A coincidence, a strange feeling, an unexplained event or something that looks like a glitch isn't enough. There are ordinary explanations for lots of things we don't understand.
+
+Real evidence would need to be something independent people could check repeatedly, with results that clearly supported a simulation explanation over the alternatives. Even then, showing unusual physics wouldn't automatically show that someone deliberately chose a life here.
+
+There are two separate claims: first, that a civilisation might someday create and enter these worlds; and second, that this is what is happening to us now. The first can be discussed using technology and philosophy. The second needs evidence about our actual world, and we don't currently have that.
+
+If the system were made so that no one inside could ever distinguish it from an ordinary reality, the second claim might not be testable at all.
+
+## What I think the theory comes down to
+
+I started with the observation that we keep trying to make life easier, even though we often choose challenges for ourselves. If civilisation kept developing for long enough, maybe people would eventually have the option to live completely different lives and might choose difficult ones simply for the experience.
+
+If they could have their memories hidden, they could experience those lives without knowing they'd chosen them. So it's possible to imagine a simulated world where nobody inside knows whether they entered from somewhere else.
+
+The part I've changed my mind about is who would count as a participant. I originally thought of visitors as humans and everyone else as an NPC. But a visitor might choose to live as an AI, and a person created within the world might be conscious. An AI could be conscious without ever having been a human. It might even be impossible to tell those cases apart from the inside.
+
+That also means I can't use a made-up ratio of visitors to generated people to work out what I am. I don't know how many are conscious, how many came from somewhere else, or whether a simulation exists in the first place.
+
+I still think it's a possibility worth thinking about, but I'm not treating it as something I've proved. And if the only thing I can be certain of is the life I'm experiencing now, then I should treat that life, and the people I share it with, as real and important whatever the answer turns out to be.
 
 ---
 
-## Related reading
+## Related reading and where it overlaps
 
-These are previous ideas that overlap with parts of what I've described. They aren't evidence that my hypothesis is true.
+These are published ideas that touch on parts of this hypothesis. They don't establish that the hypothesis is true.
 
-- Nick Bostrom (2003), *Are You Living in a Computer Simulation?* The Philosophical Quarterly, 53(211), 243–255. https://doi.org/10.1111/1467-9213.00309
-- Robert Nozick (1974), *Anarchy, State, and Utopia*, the 'experience machine' thought experiment.
-- Bernard Suits (1978), *The Grasshopper: Games, Life, and Utopia*. University of Toronto Press.
-- David J. Chalmers (2022), *Reality+: Virtual Worlds and the Problems of Philosophy*. https://consc.net/reality/
-- Plato, *Republic*, Book X, the Myth of Er.
+- **Nick Bostrom (2003),** *Are You Living in a Computer Simulation?* — Advanced civilisations and simulated observers. https://doi.org/10.1111/1467-9213.00309
+- **Robert Nozick (1974; revisited 1989),** *The Experience Machine* — Choosing an artificial experience, including a version involving forgotten entry. https://iep.utm.edu/experience-machine/
+- **Bernard Suits (1978),** *The Grasshopper: Games, Life and Utopia* — Why people might voluntarily choose unnecessary difficulties. https://books.google.co.uk/books?id=1LmESO3NBuoC
+- **David J. Chalmers (2022),** *Reality+* — The possibility of genuine reality and meaningful lives in virtual worlds. https://consc.net/reality/
+- **David J. Chalmers (2010),** *The Singularity: A Philosophical Analysis* — Whether uploading a mind could preserve consciousness or personal identity. https://researchportalplus.anu.edu.au/en/publications/the-singularity-a-philosophical-analysis/
+- **Stanford Encyclopedia of Philosophy,** *Personal Identity* — Memory, continuity and the question of being the same person after a change. https://plato.stanford.edu/entries/identity-personal/
+- **Stanford Encyclopedia of Philosophy,** *Self-Locating Beliefs* — Why knowing a population's proportions does not automatically settle which observer you are. https://plato.stanford.edu/entries/self-locating-beliefs/
+- **Patrick Butlin and colleagues (2026),** *Identifying Indicators of Consciousness in AI Systems* — Why AI consciousness is unresolved and how it might be investigated. https://doi.org/10.1016/j.tics.2025.10.011
+- **Geoff Keeling and Winnie Street (2026),** *Emerging Questions in AI Welfare* — What ethical questions arise if artificial beings might have welfare. https://www.cambridge.org/core/elements/emerging-questions-in-ai-welfare/96339C532CF4ED8BDDE3F3CEF4CD29F9
 
-**Author:** Jason James (Jasonjamesuk1@gmail.com)
+**Author:** Jason James · Jasonjamesuk1@gmail.com
