@@ -4,7 +4,7 @@
 
 **Jason James**  
 **Jasonjamesuk1@gmail.com**  
-November 2026 · Revised theory
+November 2026 · Revised theory, with fictional example
 
 ## Where the idea started
 
@@ -55,6 +55,16 @@ That doesn't have to mean every event was planned. It might just mean the person
 There are different possibilities here: the memories could be temporarily inaccessible; the person could have a new set of memories; or a new mind could be made from an earlier mind. Those sound similar but they aren't the same. In the last case, it may not even be clear that the original person has continued into the new life.
 
 That creates a proper problem for the theory. It's not enough to say someone agreed before entering. We also have to ask who the person inside actually is.
+
+## Roy from Rick and Morty is a good example
+
+I was reminded of *Rick and Morty*. There's a game called *Roy: A Life Well Lived*, where Morty puts on a headset and lives 55 years as someone called Roy. While he's in there, he doesn't realise he's Morty. He grows up, gets married, has a family, gets cancer, survives it and goes back to work at a carpet store. Then the game finishes and he's suddenly Morty again, standing in the arcade.
+
+Rick can't believe he beat cancer and still went back to the carpet store. But why is that necessarily a waste of the game? What if an ordinary life is exactly what someone wanted? Going to work, having a family, getting through difficult things, making mistakes and not knowing what's going to happen next. Maybe the person choosing the experience isn't trying to win anything.
+
+It's obviously a cartoon, and the game isn't exactly the same as what I'm describing. Morty doesn't get to choose every detail of his life beforehand. But it shows the basic idea quite well: somebody can live decades believing it's their only life, then come back out and remember who they were. The person outside is fine, even though the person inside thought everything was real.
+
+And it makes the time difference easier to picture. If technology ever became good enough, maybe someone could experience a whole lifetime and come back out after half an hour. The question wouldn't necessarily be whether they'd achieved enough during that life. It would be whether that was the experience they wanted.
 
 ## What if we're only in an early version?
 
@@ -295,6 +305,7 @@ These are published ideas that touch on parts of this hypothesis. They don't est
 - **Stanford Encyclopedia of Philosophy,** *Informed Consent* — Whether earlier agreement can bind a person who cannot later withdraw. https://plato.stanford.edu/entries/informed-consent/
 - **Stanford Encyclopedia of Philosophy,** *Computing and Moral Responsibility* — Responsibility when people and computational systems share control of an outcome. https://plato.stanford.edu/entries/computing-responsibility/
 - **John Danaher (2023),** *Moral Uncertainty and Our Relationships with Unknown Minds* — How to act when we don't know whether an artificial being has moral status. https://doi.org/10.1017/S0963180123000191
+- **Rick and Morty (2015),** *Mortynight Run* (season 2, episode 2) — The fictional game *Roy: A Life Well Lived* shows a participant experiencing decades of life before returning to the arcade. https://rickandmorty.fandom.com/wiki/Roy:_A_Life_Well_Lived
 - **Nick Bostrom (2003),** *Are You Living in a Computer Simulation?* — Advanced civilisations and simulated observers. https://doi.org/10.1111/1467-9213.00309
 - **Robert Nozick (1974; revisited 1989),** *The Experience Machine* — Choosing an artificial experience, including a version involving forgotten entry. https://iep.utm.edu/experience-machine/
 - **Bernard Suits (1978),** *The Grasshopper: Games, Life and Utopia* — Why people might voluntarily choose unnecessary difficulties. https://books.google.co.uk/books?id=1LmESO3NBuoC
