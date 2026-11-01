@@ -4,7 +4,7 @@
 
 **Jason James**  
 **Jasonjamesuk1@gmail.com**  
-October 2026 · Revised theory
+November 2026 · Revised theory
 
 ## Where the idea started
 
@@ -55,6 +55,24 @@ That doesn't have to mean every event was planned. It might just mean the person
 There are different possibilities here: the memories could be temporarily inaccessible; the person could have a new set of memories; or a new mind could be made from an earlier mind. Those sound similar but they aren't the same. In the last case, it may not even be clear that the original person has continued into the new life.
 
 That creates a proper problem for the theory. It's not enough to say someone agreed before entering. We also have to ask who the person inside actually is.
+
+## What if we're only in an early version?
+
+Another possibility is that the technology isn't finished yet. Maybe there are early versions of these worlds, and the people running them are still finding out what works.
+
+Suppose people inside start wondering whether their world is a simulation. The developers might decide that ruins the experience they were trying to create. Or there might be a genuine technical fault that needs fixing. They could stop that version and make a better one.
+
+But that doesn't mean everybody inside dies. In the version of the theory I'm talking about, the conscious people already existed outside the simulation and chose to enter. They're having an experience, not depending on the computer for their existence. If the system stops, they come out of it.
+
+Say I live eighty years inside, but only thirty minutes pass outside. The developers stop the run, I wake up in my original existence, and I can find out what went wrong. Once they've fixed it, I might decide to try again. Perhaps I choose the same sort of life, perhaps something completely different.
+
+So ending a test version wouldn't necessarily be a terrible event. It could just be how they develop and improve the technology. Maybe the person inside doesn't remember choosing their life, but the person outside remembers entering once they're back.
+
+A few questions follow from that. Would I remember the whole eighty years? Would I be annoyed that my life had been interrupted, or would I consider it half an hour of testing? Could I carry on from where I left off, or would the new version start again? If I chose not to go back, that should be my choice too.
+
+And there is a difference between eighty years *experienced inside* and thirty minutes *passing outside*. One doesn't cancel out the other. Even if I'm perfectly safe when I leave, what I experienced might still have mattered to me.
+
+There's no evidence that our world is one of those test versions, or that discussing simulation theories makes anyone decide to stop anything. It's just another possibility to consider if we're assuming this technology exists.
 
 ## What if this has already happened?
 
@@ -260,7 +278,7 @@ If the system were made so that no one inside could ever distinguish it from an 
 
 I started with the idea that we spend our lives improving things and making them easier, but still choose to do hard things for the experience. If civilisation carried on developing for long enough, maybe it could reach a point where people could choose entire lives and have their memories of choosing them hidden.
 
-The version I'm proposing has one basic rule: **every conscious being in that world chose to enter it. The rest are NPCs generated to make the world work, without their own experiences.** Visitors could choose to live as humans, animals, AI or something else. They might choose wonderful lives, difficult lives, or even lives where they do horrible things and get away with them.
+The version I'm proposing has one basic rule: **every conscious being in that world chose to enter it. The rest are NPCs generated to make the world work, without their own experiences.** The participants remain conscious beings outside the simulation. If a version is stopped, they come back out, and the operators can fix it and run another version. Visitors could choose to live as humans, animals, AI or something else. They might choose wonderful lives, difficult lives, or even lives where they do horrible things and get away with them.
 
 That raises questions about how the system matches everyone's choices, whether people agree to an entire story or just the starting conditions, and what it means to change your mind when you no longer remember making the choice.
 
