@@ -2,8 +2,6 @@
 
 ### If life could eventually be anything we wanted, would we choose to start again with limits?
 
-**Jason James**  
-**Jasonjamesuk1@gmail.com**  
 November 2026 · Revised theory, with fictional example
 
 ## Where the idea started
@@ -316,4 +314,3 @@ These are published ideas that touch on parts of this hypothesis. They don't est
 - **Patrick Butlin and colleagues (2026),** *Identifying Indicators of Consciousness in AI Systems* — Why AI consciousness is unresolved and how it might be investigated. https://doi.org/10.1016/j.tics.2025.10.011
 - **Geoff Keeling and Winnie Street (2026),** *Emerging Questions in AI Welfare* — What ethical questions arise if artificial beings might have welfare. https://www.cambridge.org/core/elements/emerging-questions-in-ai-welfare/96339C532CF4ED8BDDE3F3CEF4CD29F9
 
-**Author:** Jason James · Jasonjamesuk1@gmail.com
